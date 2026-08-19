@@ -10,7 +10,7 @@
 
 ### 🚀 About Me
 
-Teenage tech lover from Serbia. 🇷🇸  
+A curious teenager from Serbia. 🇷🇸  
 Member of [Hack Club](https://hackclub.com)
 
 🔭 &nbsp;I'm currently working on **all kinds of projects**  
