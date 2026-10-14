@@ -12,6 +12,7 @@
 
 A curious teenager from Serbia. 🇷🇸  
 Member of [Hack Club](https://hackclub.com)
+
 [akisarke.xyz](https://akisarke.xyz)
 
 🔭 &nbsp;I'm currently working on **all kinds of projects**  
